@@ -1,2 +1,2 @@
 # NewBeginnings
-Trying new things.
+Trying and learning new things.
